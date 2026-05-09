@@ -1,4 +1,4 @@
-## 🔭 Full Stack Engineer
+## Full Stack Engineer
 
 
-Coding my way into a job in this cooked ahh market
+Coding my way into a job with this cooked ahh market
